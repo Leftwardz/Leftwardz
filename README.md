@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Leftwardz
+- 🌱 I’m currently learning ...
+- 📫 How to reach me: nathannnalvarenga@hotmail.com
